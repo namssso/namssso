@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @namsss
+- 👋 Hi, I’m @namssso
 - 👀 I’m interested in crypto and DeFi
 - 🌱 I’m currently learning stablecoins
 - 💞️ I’m looking to collaborate on anything stablecoin related
